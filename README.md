@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @SGarabiles-9R and you can call me YoshIII
+- 👀 I’m interested in coding [when i understand what i'm doing] and Anime [MHA, RKDD, JJK, BD, and SXP]
+- 🌱 I’m currently learning more complex structures and CSS \('><')/
+- 💞️ I'm single and I don't wanna mingle :>
+- 😄 Pronouns: She/Her but you can also refer to me as "It", I just like it. , no questions asked
+- ⚡ Fun fact: I don't know how to use money for my wants :P I always end up buying gifts for other people but I can't mentally bring myself to buy my own things, I don't know why :>
+--->
